@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @emonyo420
+- 👀 I’m Benaughty, Pumaslove, Onenightfriend debug.
+- 🌱 I’m Willing to learn I wish I can meet someone willing fo teach me.
+- 💞️ I’m scriptsafe import and php dynamiclinks related to my number 👀 2.
+- 📫 jalbuenaraymond@gmail.com
